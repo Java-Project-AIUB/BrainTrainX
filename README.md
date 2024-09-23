@@ -38,7 +38,7 @@ The legend who changed my University life (My Java course instructor: ANJIR AHME
 
 𝐋𝐨𝐠𝐢𝐧 𝐏𝐚𝐠𝐞:
 
-![IMG_3144](https://github.com/user-attachments/assets/9c70846e-db74-4fa1-8829-7e9c0d75450b)
+![IMG_3169](https://github.com/user-attachments/assets/b9de11ef-fc95-4e85-9164-cda7bd1e3500)
 
 
 𝐎𝐓𝐏 𝐕𝐞𝐫𝐢𝐟𝐢𝐜𝐚𝐭𝐢𝐨𝐧:
@@ -78,6 +78,8 @@ The legend who changed my University life (My Java course instructor: ANJIR AHME
 𝐏𝐚𝐲 𝐬𝐥𝐢𝐩:
 
 ![IMG_3201](https://github.com/user-attachments/assets/c52fc206-d25d-47b4-a653-57fc852c4f9b)
+
+
 
 
 ***𝗧𝗵𝗲𝘀𝗲 𝗮𝗿𝗲 𝗺𝘆 𝗧𝗲𝗮𝗺𝗺𝗮𝘁𝗲𝘀 (𝐆𝐫𝐨𝐮𝐩 𝐨𝐟 𝟓 𝐦𝐞𝐦𝐛𝐞𝐫𝐬) 𝗽𝗮𝗿𝘁: 𝗛𝗼𝗺𝗲𝗽𝗮𝗴𝗲, 𝗢𝗻𝗹𝗶𝗻𝗲 𝗖𝗹𝗮𝘀𝘀, 𝗡𝗼𝘁𝗶𝗰𝗲 𝗕𝗼𝗮𝗿𝗱, 𝗘𝘃𝗲𝗻𝘁, 𝗔𝗯𝗼𝘂𝘁 𝗨𝘀, 𝗖𝗼𝗻𝘁𝗮𝗰𝘁 𝗨𝘀, 𝗧𝗲𝗮𝗺 𝗺𝗲𝗺𝗯𝗲𝗿𝘀, 𝗕𝗹𝗼𝗴𝘀, 𝗖𝗼𝘂𝗿𝘀𝗲𝘀
